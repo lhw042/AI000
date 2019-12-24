@@ -30,15 +30,15 @@
 
 - 2016-2018健身会员
 
-  ![image-20191224151731725](/Users/gt/Library/Application Support/typora-user-images/image-20191224151731725.png)
+  ![](https://i.loli.net/2019/12/24/nLUcTpQmvq7YDAK.png)
 
-  ![image-20191224151434257](/Users/gt/Library/Application Support/typora-user-images/image-20191224151434257.png)
+  ​         ![](https://i.loli.net/2019/12/24/5LCJ6sVPiBYydrA.png)
 
-  45天瘦了34斤 腰围减少15厘米 胸围12厘米
+  ​             45天瘦了34斤 腰围减少15厘米 胸围12厘米
 
-​        ![image-20191224151906547](/Users/gt/Library/Application Support/typora-user-images/image-20191224151906547.png)
+![image-20191224153950632](/Users/gt/Library/Application Support/typora-user-images/image-20191224153950632.png)
 
-我自己  2个月40斤
+​                                我自己  2个月瘦40斤
 
 - 2019开智结业作业
 
